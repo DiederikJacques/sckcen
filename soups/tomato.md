@@ -8,7 +8,7 @@
 - 1 quart chicken stock
 - 1/4 cup chopped fresh basil
 - 1/2 tablespoon balsamic vinegar
-- salt to taste
+- salt to taste but not too much
 - ground black pepper to taste 
 
 ## Preparation
