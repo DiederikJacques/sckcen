@@ -22,3 +22,4 @@ In a medium bowl, beat cream with vanilla until stiff peaks form. Whisk mascarpo
 In a small bowl, combine coffee and Amaretto. Split ladyfingers in half lengthwise and drizzle with coffee mixture.
 
 Arrange half of soaked ladyfingers in bottom of a 7x11 inch dish. Spread half of mascarpone mixture over ladyfingers, then half of whipped cream over that. Repeat layers and sprinkle with cocoa. Cover and refrigerate 4 to 6 hours, until set.
+sqfdds
